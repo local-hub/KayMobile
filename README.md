@@ -1,0 +1,2 @@
+# KayMobile
+discord.gg/KayMobile
